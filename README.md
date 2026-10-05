@@ -1,1 +1,0 @@
-# grade-11-loka-sangrama
